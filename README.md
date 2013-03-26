@@ -1,0 +1,4 @@
+Spiral-to-the-anchor-to-use
+===========================
+
+Spiral anchor reinforcement in the sand anchor is generally used tents,tents were blown control run. Screw anchor in the sand while the soft soil conditions, the ability to grip the pile than the averageXiecha to better performance. Typically, you need an iron bar about 1 cm diameter, inserted into the ground along the direction of the pile relative to the top of the hole, then rotate clockwise to the pile, until the spiral part of thesandy soil can enter. Note that, in hard soil conditions can not beused to screw piles, so as to avoid reduced efficiency.www.ground-screw.com
